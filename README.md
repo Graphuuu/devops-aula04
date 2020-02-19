@@ -3,7 +3,8 @@
 
 Kimi no na wa
 
-Shigatsu wa no kimi no uso
+5 centimenters per second
 
 Brilho eterno de uma mente sem lembranças
 
+Pedro e Bino
