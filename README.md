@@ -7,8 +7,8 @@ Kimi no na wa
 
 Brilho eterno de uma mente sem lembranças
 
-Pedro e Bino selo bino de cilada
-
-João e Barbara viveram felizes para sempre!
 
 Barbara and John had a happy ending !
+
+
+tava no fluxo avistei a novinha no grau
