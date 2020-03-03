@@ -5,7 +5,7 @@ Kimi no na wa
 
 5 centimenters per second
 
-Brilho eterno de uma mente sem lembranças
+Brilho eterno de uma mente sem lembranç321321as
 
 
 João e Barbara viveram felizes para sempre!
