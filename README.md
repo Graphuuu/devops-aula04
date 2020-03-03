@@ -10,9 +10,7 @@ Brilho eterno de uma mente sem lembranças
 Pedro e Bino selo bino de cilada
 
 João e Barbara viveram felizes para sempre!
-eita cuzaooooooooo
-dasudsauhda
-udfsahfa
+ versadsauhdsa
 
 
 Barbara and John had a happy ending !
