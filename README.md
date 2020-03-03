@@ -8,3 +8,7 @@ Kimi no na wa
 Brilho eterno de uma mente sem lembranças
 
 Pedro e Bino
+
+João e Barbara viveram felizes para sempre!
+
+Barbara and John had a happy ending !
