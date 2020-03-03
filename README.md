@@ -8,6 +8,11 @@ Kimi no na wa
 Brilho eterno de uma mente sem lembranças
 
 
+João e Barbara viveram felizes para sempre!
+ versadsauhdsa
+
+
+
 Barbara and John had a happy ending !
 
 
